@@ -1,81 +1,77 @@
-Chapter 1 — Starts Today
+**Chapter 1 — Starts Today**
 
-There is a quiet moment that exists before any real change.
+Before any meaningful change, there is always a moment of unusual stillness.
 
-It does not arrive with noise or celebration.
-No one announces it.
-Nothing in the outside world looks different.
+It rarely announces itself.
+There is no ceremony. No visible turning point.
+From the outside, nothing appears different at all.
 
-But internally, something shifts.
+And yet, internally, something subtle rearranges.
 
-A line is drawn—
+The shift is not dramatic.
+It is simply the drawing of a line—
 not between past and future,
-but between drifting and deciding.
+but between drifting… and deciding.
 
-For a long time, life can feel like motion without direction.
-Effort without structure.
-Hope without evidence.
+For long stretches of life, motion can masquerade as progress.
+Effort accumulates without direction.
+Hope persists without evidence.
 
-Days pass.
-Weeks blur.
-Plans are made, then quietly abandoned.
-Not from weakness, but from the slow gravity of uncertainty.
+Days slide forward. Weeks soften at the edges.
+Intentions are formed and quietly set aside—
+not because of weakness,
+but because uncertainty exerts a slow, patient gravity.
 
-And then, almost unnoticed, a different thought appears:
+Then, almost imperceptibly, a different question emerges:
 
-What if today counts?
+*What if today matters?*
 
 Not tomorrow.
-Not someday.
-Not when everything is finally ready.
+Not the imagined future where conditions are perfect.
+Just today.
 
-Today.
+It is the smallest conceivable beginning.
+And, historically speaking, the only beginning that has ever existed.
 
-This is the smallest possible beginning,
-and also the only one that has ever truly existed.
+Every disciplined life.
+Every reconstructed future.
+Every story that eventually became meaningful…
 
-Every disciplined life…
-every rebuilt future…
-every meaningful story…
+can be traced back to an ordinary day
+that someone refused to waste.
 
-has started in the same ordinary place:
-
-A single day
-that someone decided
-would no longer be wasted.
-
-No audience.
-No guarantee.
-No proof it would work.
+There was no audience.
+No assurance.
+No early evidence of success.
 
 Only a decision—
-quiet, firm, and invisible to everyone else.
+quiet, steady, and invisible to everyone else.
 
-Starts today is not motivation.
-It is not emotion.
-It is not a promise of speed.
+“Starts today” is not a burst of motivation.
+It is not emotional momentum.
+It offers no promise of speed.
 
-It is a commitment to direction.
+It is something far less dramatic, and far more powerful:
 
-Progress will be slow.
-Doubt will return.
-Old habits will argue for comfort.
+a commitment to direction.
 
-But the line has been drawn.
+Progress, of course, will be uneven.
+Doubt will reappear with familiar arguments.
+Comfort will continue to negotiate for control.
 
-And once a person truly decides to move forward,
-even imperfectly,
-life begins to reorganize itself around that decision.
+But the line, once drawn, remains.
 
-Not all at once.
-Not dramatically.
-But steadily.
-Honestly.
-Irreversibly.
+And when a person genuinely chooses forward—
+even clumsily, even slowly—
+life has a peculiar tendency to reorganize around that choice.
 
-This is where the story begins.
+Not suddenly.
+Not spectacularly.
+But with a steady honesty that becomes, over time, irreversible.
 
-Not when everything is fixed—
-but when forward becomes non-negotiable.
+This is where every real story begins.
+
+Not at the moment everything is repaired—
+but at the moment forward becomes non-negotiable.
 
 It starts today.
