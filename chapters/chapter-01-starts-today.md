@@ -1,3 +1,6 @@
+![Chapter 1 Cover](../images/chapter-01-cover.png)
+
+
 **Chapter 1 — Starts Today**
 
 Before any meaningful change, there is always a moment of unusual stillness.
